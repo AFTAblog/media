@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: AFTA HOUSE OF MANIFESTATION MEDIA BLOG
 ---
 
